@@ -15,11 +15,11 @@
 
 - Prepare espresso shot and pour into mug once brewed.
 
-### Step 2
+### Step 2000
 
 - Stir in optional sweetener.
 
-### Step 3
+### Step 3000
 
 - In a separate container, steam and froth milk until you have a light layer of foam.
 
